@@ -1,4 +1,4 @@
-# Mue mund te me ndiqni ne te gjitha keto rrjete sociale
+# Mua mund te me ndiqni ne te gjitha keto rrjete sociale
 ### Facebook
 ### Instagram 
 ### Twitter
